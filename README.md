@@ -1,1 +1,1 @@
-# -srisuryanaryanaswamydevasthanam.github.io-
+srisuryanaryanaswamydevasthanam.github.io
